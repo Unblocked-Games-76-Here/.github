@@ -1,6 +1,6 @@
-# [Play Game!](https://magar-io.com/)
+# Click to PLAY >>> [Play Game!](https://2slope.pages.dev/)
 
-# [Play Game!](https://retrobowl-2.pages.dev/)
+# Click to PLAY >>> [Play Game!](https://retrobowl-2.pages.dev/)
 
 
 <a href="https://retrobowl-2.pages.dev"><img src="https://clearcache.store/games.png"></a>
